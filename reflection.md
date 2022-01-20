@@ -8,7 +8,7 @@ Self Evaluation Rubric
 
 ### Understanding (CiE) 
 
-The skills this project focused on were: 
+The skills this project focused on were: IDP, creative project, didn't target specfic skills, but built upon some of the concepts we've already learned.
 
 My project exhibits
 
